@@ -1,1 +1,2 @@
-# tin-sinh-h-c
+# BÁO CÁO TIN SINH HỌC
+# NHÓM 8:
